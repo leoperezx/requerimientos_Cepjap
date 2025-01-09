@@ -3,7 +3,6 @@ Lista de documentos solicitados por el Cepjap
 
 ## Leonardo Perez Hurtado 
 **Maestro de Matemáticas y Física**
-<leoperez.x@gmail.com>
 
 ### Documentos personales
 - [Hoja de vida](https://docs.google.com/document/d/134izBJiALsm4VU4rJuxlv6pZitYVLF1AAg8w2RVRLGE/edit?usp=sharing)
